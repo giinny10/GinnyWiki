@@ -1,4 +1,4 @@
-## anime/manga
+## Anime/manga
 + [Little My anilist](https://anilist.co/user/LittleMy/)
 
 ## Book
