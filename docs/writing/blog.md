@@ -1,1 +1,1 @@
-1. Viết lách: https://ngachtuduonghoa3575.wordpress.com
+1. Viết lách linh tinh: https://ngachtuduonghoa3575.wordpress.com
